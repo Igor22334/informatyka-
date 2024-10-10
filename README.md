@@ -1,1 +1,1 @@
-# informatyka-
+Gavrylov Igor 
